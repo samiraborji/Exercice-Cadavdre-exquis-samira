@@ -4,3 +4,13 @@
 * Il est connu pour son franc parler.
 * Et pour avoir fait évoluer le Maroc.
 * il a beaucoup moderniser ce pays
+
+
+
+
+
+
+
+* c'est vrai que le Maroc reste une grande nation Africaine
+* un Pay avec beaucoup de richesse 
+*  j'aimerai voyager un jour au Maroc(Japhet)
