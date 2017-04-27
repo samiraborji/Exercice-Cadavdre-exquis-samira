@@ -1,4 +1,5 @@
 # Exercice-Cadavdre-exquis-samira
-### exercice emily###
-##teste1##
-
+###hassan2
+Hassan 2 est un ancien roi du maroc et le pere de Mohamed 6.
+Il est connue pour son franc parler.
+Et pour avoir fait evoluer le Maroc.
